@@ -1,8 +1,6 @@
 François Ian Yen
 
-🇫🇷 il/iel
-
-🇬🇧 he/they
+il/he
 
 francoisianyen@icloud.com
 
